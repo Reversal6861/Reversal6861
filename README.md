@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Reversal6861
+- Join my discord: https://discord.gg/Kr8PkxgCZc
